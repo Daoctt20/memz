@@ -1,1 +1,1 @@
-# memz
+this virus kill ur computer
